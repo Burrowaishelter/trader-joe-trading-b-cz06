@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with AI-powered trader joe trading bot Addon | front-running-detection + market-making, the #1 trader joe trading bot. Includes front-running-detection and
 
 
 
